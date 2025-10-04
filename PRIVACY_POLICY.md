@@ -134,7 +134,7 @@ Continued use of the app after changes constitutes acceptance of the updated pol
 
 If you have questions about this Privacy Policy, please contact us at:
 
-**Email:** [Your Email Here]
+**Email:** ctdudley2008@gmail.com
 
 ---
 
