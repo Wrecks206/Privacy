@@ -236,8 +236,7 @@ These Terms of Service constitute the entire agreement between you and Climate C
 
 For questions about these Terms of Service:
 
-**Email:** [Your Email Here]  
-**Website:** [Your Website Here]
+**Email:** ctdudley2008@gmail.com 
 
 ---
 
